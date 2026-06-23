@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-SASJ831210HCLLNN02
+SASJ831210HCLLNN02
